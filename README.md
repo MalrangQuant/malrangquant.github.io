@@ -1,1 +1,0 @@
-Malrang Quant Site
